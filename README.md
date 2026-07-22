@@ -1,1 +1,1 @@
-# my new website for gaming purpuse
+# my new website for kids
